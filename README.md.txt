@@ -1,1 +1,0 @@
-correo: maging23rodrig@gmil.com
